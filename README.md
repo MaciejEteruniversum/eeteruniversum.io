@@ -1,0 +1,2 @@
+# eeteruniversum.io
+redakcja eterunivese
